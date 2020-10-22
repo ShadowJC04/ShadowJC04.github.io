@@ -10,4 +10,4 @@ Er ist einer der Hauptcharaktere und redet nichts und ist kaltblütig.
 > "..."
 
 
-<img src="CAIQjRxqFwoTCODlqsjDyOwCFQAAAAAdAAAAABAE"/>
+<img src="https://vignette.wikia.nocookie.net/theboys/images/9/9f/Black_Noir.jpg/revision/latest/top-crop/width/360/height/450?cb=20200807014726&path-prefix=de"/>
