@@ -8,3 +8,4 @@ Er ist einer der Hauptcharaktere und redet nichts und ist kaltblütig.
 - Er ist Kaltblütig und hat kein Erbarmen gegenüber seinen Opfern
 - Er ist allergisch gegen Nüsse
 
+> "..."
